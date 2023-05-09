@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on developing a website related to NFTs with my company.<br><br>👯 I’m looking to collaborate on projects related to blockchain technology and NFTs with other developers and entrepreneurs.<br><br>🤝 I’m looking for help with building and growing a community around my company's NFT website.<br><br>🌱 I’m currently learning more about smart contracts and decentralized finance to improve our NFT platform.<br><br>💬 Ask me about the latest trends and developments in the world of NFTs and blockchain technology.<br><br>⚡ Fun fact: I have visited 23 countries and counting, and I love exploring new cultures and meeting new people.
+🔭 I’m currently working on developing a website related to NFTs with my company.<br><br>👯 I’m looking to collaborate on projects related to blockchain technology and NFTs with other developers and entrepreneurs.<br><br>🌱 I’m currently learning more about smart contracts and decentralized finance to improve our NFT platform.<br><br>💬 Ask me about the latest trends and developments in the world of NFTs and blockchain technology.<br><br>⚡ Fun fact: I have visited 23 countries and counting, and I love exploring new cultures and meeting new people.
 
 
 ## 🌐 Socials:
